@@ -1,1 +1,1 @@
-## Hi Comuputer
+## Hi Computer
